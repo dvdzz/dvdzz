@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Tyler
+- 👋 Hi, I’m Darren O.
 - 👀 I’m interested in changing the world
 - 🌱 I’m currently doing research on various subjects which will allow me to take over the world....
 - 💞️ I’m looking to collaborate with like minded individuals who are passionate and willing to stand up
